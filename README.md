@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zazahunter
+- 👀 I’m interested in all forms of zaza
+- 🌱 I’m currently learning being a master zaza
+- 💞️ I’m looking to collaborate on all forms of human life
+- 📫 How to reach me by screaming suka blyat out of your window
